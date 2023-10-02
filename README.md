@@ -2,7 +2,7 @@
 
 - YIPPEE
 
-This acc is just for iridescent games : Betterlife
+This acc is just for iridescent games : Betterlife and mainly school projects
 
 YIPPEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 
